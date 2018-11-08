@@ -1,1 +1,2 @@
-# Mijn-CV
+[bezoek mijn link](https://ingridbergs.github.io/Mijn-CV)
+
